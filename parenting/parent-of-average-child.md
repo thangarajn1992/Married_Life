@@ -24,4 +24,4 @@ How many of us thought we should respect children? We adults demand our respect 
 
 Among children preparing for IIT, MBBS even at a tender age of 11 years. My average child is talking about traveling the world, meeting new people and eating different cuisines. My average child might or might not become a doctor, astronaut, scientist But she is sure to grow up to be a good person, who will spread cheer.
 
-Last but not least: Notice the average child. All that child wants is a smile or a kind word from us adults for just being herself to give her assurance to trust the world. _ABSOLUTELY BRILLIANT- A MUST READ FOR EVERY PARENT _ **Each child is different, so is each parenting Style**😊
+Last but not least: Notice the average child. All that child wants is a smile or a kind word from us adults for just being herself to give her assurance to trust the world.  **Each child is different, so is each parenting Style**😊
